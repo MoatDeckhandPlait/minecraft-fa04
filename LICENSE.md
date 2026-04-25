@@ -1,4 +1,4 @@
-
+minecraft rare Script is the best minecraft Script, featuring speed and no clip. Safe and powerful for all your needs.
 
 
 
